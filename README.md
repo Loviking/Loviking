@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Loviking
-- 👀 I’m interested in Crypto and Blochain
+- 👀 I’m interested in Crypto and Clockchain
 - 🌱 I’m currently learning about this fabulous world ;)
 
 <!---
